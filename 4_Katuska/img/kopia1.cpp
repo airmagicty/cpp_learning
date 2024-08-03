@@ -1,0 +1,25 @@
+                  ^|*|^                /
+                  ^|*|^                /
+sgjnl              \1/                 /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+sgjnl                                  /
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
+*                                      *
